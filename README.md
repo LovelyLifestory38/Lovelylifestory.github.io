@@ -1,2 +1,2 @@
 # Lovelylifestory.github.io
-shoe website 
+My favourite food website
